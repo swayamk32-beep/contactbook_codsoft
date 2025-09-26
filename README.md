@@ -82,11 +82,3 @@ Swayam Kumar
 📞 Contact: +91 9334779673
 
 🌐 GitHub: https://github.com/swayamk32-beep
-
-
-
-
-
-Ask ChatGPT
-
-You’ve hit the Free plan lim
